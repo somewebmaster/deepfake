@@ -35,7 +35,7 @@ I go to enter Kate and begin pumping and thrusting, much to her pleasure. After 
 
 She tried, but it was very inconsistent and I coached her on thrusting missionary was too hard, so she told Kate to get on all fours. She smacked Kate's ass and positioned herself well. She used her whole body, instead of just hop thrusting and was deep and long fucking Kate in no time. 
 
-I'm sitting there slowly stroking myself when it occurred to me that the harness was crotchless. I move behind Stacey and press my body against hers matching the rhythm. I slid my cock between her thighs and aimed home. As I entered her she slowed and Kate asked if everything was okay with Taeyeon deepfake porn. Stacey just moaned and mmhmm'd. 
+I'm sitting there slowly stroking myself when it occurred to me that the harness was crotchless. I move behind Stacey and press my body against hers matching the rhythm. I slid my cock between her thighs and aimed home. As I entered her she slowed and Kate asked if everything was okay with Taeyeon deepfake porn (https://deepfake-porn.com/actor/taeyeon/). Stacey just moaned and mmhmm'd. 
 
 Kate looked back and just said, "Oh, that's fucking hot." I started fucking into her, which forced Stacey to start moving at the same rhythm on Kate. Kate started saying "oh fuck oh fuck" and I knew her first orgasm was nearing. She slowly slides down and we all moved carefully. 
 
