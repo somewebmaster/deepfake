@@ -45,7 +45,7 @@ I'd never heard her this audible before and they both are saying to each other h
 
 I pulled out without cumming and Stacey did as well. Kate's ass was red and she exclaimed she'll probably be a bit bruised from that. I laid down and Stacey did too. We needed a short break and we talked about what else we could do. 
 
-Kate got up went to the bathroom and came back with a washcloth. She climbed in the bed and faced us with her mischievous smile. She scooted us closer together and I held Stacey's hand. Kate wiped off the dildo and then went down on it, getting it extra slobbery. 
+Kate got up went to the bathroom and came back with a washcloth. She climbed in the bed and faced us with her mischievous smile. She scooted us closer together and I held Stacey's hand. Kate wiped off the dildo and then went down on it, getting it extra slobbery, looking at IU (https://deepfake-porn.com/actor/iu/). 
 
 Then she started sucking my cock and comparing them, the dildo being bigger by an inch, but the same thickness. She tried putting both in her mouth and it was more funny than hot. She pouted and asked if we had better ideas. 
 
